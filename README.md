@@ -1,0 +1,1 @@
+The Handbag Hut landing page is designed to attract potential customers and showcase the store's collection of handbags. The page features a clean, modern design with intuitive navigation and engaging visuals. Key sections include an introduction to the store, featured collections, a blog section, customer testimonials, a gallery, and contact information.
